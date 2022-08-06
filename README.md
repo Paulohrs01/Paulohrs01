@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Paulohrs01 😁
+## Bem-vindo(a) ao meu perfil - Paulohrs01 😁
 
  <div>
    <a href="https://github.com/Paulohrs01">
